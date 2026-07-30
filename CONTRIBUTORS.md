@@ -12,3 +12,4 @@
 | Okon, Abigail Daniel| [_@abby123-tech](https://GitHub.com/AbigailDaniel) |22/EG/ME/1801|
 | Iweka Ngozi Joyce | [@Ngozii44](https://github.com/ngozii44) | 22/EG/ME/1731 |
 | Umoh, Abasiama Raphael| [@Abasumoh](http://github.com/Abasumoh) | 22/EG/ME/1761|
+| Peter Samuel John | [@Gospel-Funds](http://github.com/Gospel-Funds) | 22/EG/ME/1771 |
