@@ -7,4 +7,5 @@
 | Ogbeni, Oritseshola Princewill |[@SholaOgbeni1 ](https://github.com/SholaOgbeni1) | 22/EG/ME/1821 |
 | Linus, Etimo Anthony | [@linusetimo29-crypto ](https://GitHub.com/linusetimo29-crypto) | 22/EG/ME/1711 |
 | Daniel, Akachukwu Jeremy | [@1223white ](https://github.com/1223white) | 22/EG/ME/1781 |
-| Dickson, Angel Ephraim|  [@angeldickson20052005-jpg](https://GitHub.con/angeldickson20052005) |22/EG/ME/1691|
+| Dickson, Angel Ephraim|  [@angeldickson20052005-jpg](https://GitHub.com/angeldickson20052005) |22/EG/ME/1691|
+| Inyangete, Wisdom Kingsley| [ @WisdomInyangete](https://GitHub.com/WisdomInyangete) |22/EG/ME/1741|
