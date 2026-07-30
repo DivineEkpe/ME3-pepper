@@ -6,3 +6,4 @@
 | Okon, Michael Edem| [@Mickey2003](https://github.com/Mickey2003) | 22/EG/ME/1751|
 | Ogbeni, Oritseshola Princewill |[@SholaOgbeni1 ](https://github.com/SholaOgbeni1) | 22/EG/ME/1821 |
 | Linus, Etimo Anthony | [@linusetimo29-crypto ](https://GitHub.com/linusetimo29-crypto) | 22/EG/ME/1711 |
+| Daniel, Akachukwu Jeremy | [@1223white ](https://github.com/1223white) | 22/EG/ME/1781 |
