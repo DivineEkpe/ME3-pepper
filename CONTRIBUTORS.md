@@ -10,3 +10,4 @@
 | Dickson, Angel Ephraim|  [@angeldickson20052005-jpg](https://GitHub.com/angeldickson20052005) |22/EG/ME/1691|
 | Inyangete, Wisdom Kingsley| [ @WisdomInyangete](https://GitHub.com/WisdomInyangete) |22/EG/ME/1741|
 | Okon, Abigail Daniel| [_@abby123-tech](https://GitHub.com/AbigailDaniel) |22/EG/ME/1801|
+| Iweka Ngozi Joyce | [@Ngozii44](https://github.com/ngozii44) | 22/EG/ME/1731 |
